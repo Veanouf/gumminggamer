@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gumminggamer
+- 👋 Hi, I’m "not" @gumminggamer
 - 👀 I’m interested in ... bothering youtubers annoyingly
 - 🌱 I’m currently learning ... how to bother youtubers annoyingly
 - 💞️ I’m looking to collaborate on ... bothering youtubers annoyingly
