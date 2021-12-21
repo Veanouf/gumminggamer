@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @gumminggamer
-- 👀 I’m interested in ... bothering youtubers anoyinngly
-- 🌱 I’m currently learning ... how to bother youtubers anoyinngly
-- 💞️ I’m looking to collaborate on ... bothering youtubers anoyinngly
-- 📫 How to reach me ... by bothering a youtuber anoyinngly
+- 👀 I’m interested in ... bothering youtubers annoyingly
+- 🌱 I’m currently learning ... how to bother youtubers annoyingly
+- 💞️ I’m looking to collaborate on ... bothering youtubers annoyingly
+- 📫 How to reach me ... by bothering a youtuber annoyingly
 
 <!---
 gumminggamer/gumminggamer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
